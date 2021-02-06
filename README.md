@@ -10,4 +10,4 @@
 - 📫 How to reach me: Email me!
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I'm 6'5", and wear size 17 Men's shoes.
-- 🤓 I nerd out to: Psychic abilities, Metaphysics, Silk Fan Dancing, Singing, Acting, Improv, Standup Comedy, Writing, Anime, D&D, Woodland Gardening, Rose Gardening, Moon Gardens, Horticulture, Bodybuilding, Nutrition, Biohacking, Law of Attraction, Healing Trauma, Biodiversity, Ecology, Reincarnation, Philanthropic Dreams.
+- 🤓 I nerd out to: Psychic abilities, Metaphysics, Silk Fan Dancing, Singing, Acting, Improv, Standup Comedy, Writing, Podcasting, Youtube, Anime, D&D, Woodland Gardening, Rose Gardening, Moon Gardens, Horticulture, Bodybuilding, Nutrition, Biohacking, Law of Attraction, Healing Trauma, Biodiversity, Ecology, Reincarnation, Philanthropic Dreams.
