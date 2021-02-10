@@ -9,4 +9,5 @@
 - 💬 Ask me about: My learning experience from Turing, and shared interests!
 - 📫 How to reach me: Email me!
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: I'm refreshingly honest.
+- ⚡ Fun fact: I'm refreshingly and surprsingly honest.
+
