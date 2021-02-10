@@ -9,5 +9,4 @@
 - 💬 Ask me about: My learning experience from Turing, and shared interests!
 - 📫 How to reach me: Email me!
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: I'm refreshingly and surprsingly honest.
-- 🤓 I nerd out to: Psychic abilities, Metaphysics, Silk Fan Dancing, Singing, Acting, Improv, Standup Comedy, Writing, Podcasting, Youtube, Anime, D&D, Woodland Gardening, Rose Gardening, Moon Gardens, Horticulture, Bodybuilding, Nutrition, Biohacking, Law of Attraction, Healing Trauma, Biodiversity, Ecology, Reincarnation, Philanthropic Dreams.
+- ⚡ Fun fact: I'm refreshingly honest.
