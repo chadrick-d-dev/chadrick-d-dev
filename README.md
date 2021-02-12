@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning: Redux, and ReactNative
 - 🤝 I’m looking to collaborate on: Building fun and creative apps! Building educational apps!
 - 🤔 I’m looking for help with: Finding a job in the industry!
-- 💬 Ask me about: My learning experience from Turing, weight lifting, nutrition, and mysticism!
+- 💬 Ask me about: My learning experience from Turing, weight lifting, nutrition, wonderment, and mysticism!
 - 📫 How to reach me: Email me!
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I'm refreshingly and surprsingly honest.
