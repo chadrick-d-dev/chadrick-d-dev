@@ -2,7 +2,7 @@
 
 #### Recent Turing Front End Engineering Grad open to work. 
 
-- 🔭 I’m currently working on: Finding a job in the Software Industry!
+- 🔭 I’m currently working on: Learning Cypress Testing, as well as Angular.
 - 📫 How to reach me: Email me!
 - 😄 Pronouns: Any
 
