@@ -2,7 +2,6 @@
 
 #### Recent Turing Front End Engineering Grad open to work. 
 
-- 🔭 I’m currently working on: Learning Cypress Testing, as well as Angular.
-- 📫 How to reach me: Email me!
-- 😄 Pronouns: Any
+- 📫 How to reach me: Email me @ chadrick.fe.engineer@gmail.com
+- 😄 Pronouns: He/Him
 
